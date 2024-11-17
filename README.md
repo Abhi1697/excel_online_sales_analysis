@@ -73,4 +73,4 @@ Key goals include:
 
 ---
 
-This concise analysis equips businesses with actionable insights to refine sales and marketing strategies. For further collaboration, reach out to **Abhirup Chattaraj**.
+This concise analysis equips businesses with actionable insights to refine sales and marketing strategies. The detailed analysis can be found in PDF/DOC format. For further collaboration, reach out to [Abhirup Chattaraj](https://www.linkedin.com/in/abhirupchattaraj/).
