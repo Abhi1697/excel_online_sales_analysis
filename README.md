@@ -51,6 +51,9 @@ Key goals include:
 5. **Top-Selling Products**:
    - Identified best-sellers to optimize inventory and marketing.
 
+
+![Screenshot 2024-11-17 200330](https://github.com/user-attachments/assets/8e1cb7df-bae3-4e17-b8fb-19ebc6d54605)
+
 ---
 
 ## Key Insights
